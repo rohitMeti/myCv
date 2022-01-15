@@ -1,6 +1,6 @@
 # Rohit C Meti
 
-[LinkedIn](www.linkedin.com/in/rohit-meti-a213aa60)
+www.linkedin.com/in/rohit-meti-a213aa60
 
 
 ## Career Objective: 
